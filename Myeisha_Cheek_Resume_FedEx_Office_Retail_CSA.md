@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | (864) 398-3096 | myeishacheek05@gmail.com
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Customer service professional with over 6 years of experience in fast-paced retail and service environments, including point-of-sale transactions, customer order management, and problem resolution. Skilled at anticipating customer needs, providing product recommendations, and delivering a positive experience under pressure. Comfortable managing multiple tasks simultaneously, working with minimal supervision, and maintaining accuracy and attention to detail in high-volume settings. Experienced with CRM and database systems, cash handling, and maintaining confidentiality of customer information.
 
----
 
 ## EXPERIENCE
 
@@ -42,13 +40,11 @@ Customer service professional with over 6 years of experience in fast-paced reta
 - Answered customer telephone calls promptly to avoid on-hold wait times.
 - Collected and analyzed customer information to prepare product and service reports.
 
----
 
 ## EDUCATION
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

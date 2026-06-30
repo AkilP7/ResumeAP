@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | 864-398-3096 | myeishacheek05@gmail.com | linkedin.com/in/myeisha-cheek-
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Paralegal with over five years of experience supporting attorneys across litigation, case management, and client-facing legal work. Skilled in legal research, drafting motions, pleadings, and case correspondence, managing deadlines and case calendars, and coordinating across attorneys, clients, and outside parties. Experienced working independently with minimal direction in fast-paced environments, organizing complex case materials, and maintaining absolute discretion with confidential information. Proficient in Microsoft Office Suite and case management platforms, with the ability to quickly learn new systems and processes. Currently completing a Master of Legal Studies at Wake Forest University School of Law.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -48,7 +46,6 @@ Paralegal with over five years of experience supporting attorneys across litigat
 - Managed pre-litigation cases from intake through settlement, supporting attorneys with document preparation, legal research, and client communication.
 - Maintained organized case files and tracked deadlines across multiple active matters.
 
----
 
 ## EDUCATION
 
@@ -56,7 +53,6 @@ Paralegal with over five years of experience supporting attorneys across litigat
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | (864) 398-3096 | myeishacheek05@gmail.com
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Detail-oriented professional with experience in fast-paced retail, customer service, and administrative environments. Skilled in receiving, organizing, and accurately processing documentation, managing inventory, restocking merchandise, and maintaining organized records. Comfortable working in high-volume environments with multiple competing priorities. Reliable, organized, and able to work efficiently with minimal supervision. Proficient in Microsoft Office Suite and CRM systems.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -41,13 +39,11 @@ Detail-oriented professional with experience in fast-paced retail, customer serv
 - Responded promptly to customer inquiries and resolved issues efficiently.
 - Maintained accurate records and reports on product and customer information.
 
----
 
 ## EDUCATION
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

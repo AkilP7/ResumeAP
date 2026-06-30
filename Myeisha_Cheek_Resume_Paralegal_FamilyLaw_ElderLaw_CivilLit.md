@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | 864-398-3096 | myeishacheek05@gmail.com | linkedin.com/in/myeisha-cheek-
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Paralegal with over five years of experience supporting attorneys in family law litigation, child welfare cases, custody disputes, and civil matters from intake through resolution. Skilled in drafting pleadings, motions, judgments, and correspondence, managing discovery, and coordinating court-related activities including filings, hearings, and deadlines. Experienced communicating directly with clients, opposing counsel, and court personnel while managing multiple active cases and competing deadlines. Proficient in Litify and Microsoft Office Suite, with the ability to quickly adapt to new case management platforms. Currently completing a Master of Legal Studies at Wake Forest University School of Law.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -50,7 +48,6 @@ Paralegal with over five years of experience supporting attorneys in family law 
 - Managed pre-litigation cases from intake through settlement, supporting attorneys with document preparation, legal research, and client communication.
 - Maintained organized case files and tracked deadlines across multiple active matters.
 
----
 
 ## EDUCATION
 
@@ -58,7 +55,6 @@ Paralegal with over five years of experience supporting attorneys in family law 
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

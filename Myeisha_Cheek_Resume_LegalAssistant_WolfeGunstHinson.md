@@ -1,13 +1,11 @@
 # MYEISHA L. CHEEK
 Charlotte, NC 28273 | 864-398-3096 | myeishacheek05@gmail.com | linkedin.com/in/myeisha-cheek-
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Legal professional with over five years of experience providing comprehensive support to attorneys in active litigation matters, including drafting pleadings, motions, and discovery documents, managing case files and court deadlines, coordinating communication among attorneys, clients, and court personnel, and assisting with document production. Experienced working in fast-paced, multi-party litigation environments requiring strong organizational skills, precise attention to detail, and the ability to manage multiple competing deadlines simultaneously. Proficient in Litify, Microsoft Office Suite, Adobe Acrobat, and e-filing systems. Currently completing a Master of Legal Studies at Wake Forest University School of Law.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -49,7 +47,6 @@ Legal professional with over five years of experience providing comprehensive su
 - Coordinated with insurers and outside parties on documentation, scheduling, and case-related communications.
 - Tracked deadlines and managed case files across multiple simultaneous matters.
 
----
 
 ## EDUCATION
 
@@ -57,7 +54,6 @@ Legal professional with over five years of experience providing comprehensive su
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

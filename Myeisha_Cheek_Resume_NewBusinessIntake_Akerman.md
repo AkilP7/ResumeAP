@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | 864-398-3096 | myeishacheek05@gmail.com | linkedin.com/in/myeisha-cheek-
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Legal professional with over five years of experience in law firm environments, including direct experience managing client intake processes, maintaining accurate case and client records in legal databases, and communicating with attorneys and legal staff on matter status and documentation requirements. Skilled in reviewing intake documentation for accuracy and completeness, entering and updating client data across multiple systems, and processing requests in a fast-paced, deadline-driven environment. Experienced working independently with minimal supervision while maintaining a high standard of accuracy and attention to detail. Proficient in Litify, Microsoft Office Suite, and legal case management platforms. Currently completing a Master of Legal Studies at Wake Forest University School of Law.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -47,7 +45,6 @@ Legal professional with over five years of experience in law firm environments, 
 - Managed pre-litigation case files from intake through settlement, supporting attorneys with documentation, records management, and client communication.
 - Maintained organized case records and tracked deadlines across multiple active matters.
 
----
 
 ## EDUCATION
 
@@ -55,7 +52,6 @@ Legal professional with over five years of experience in law firm environments, 
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 

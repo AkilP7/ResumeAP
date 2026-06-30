@@ -2,13 +2,11 @@
 
 Charlotte, NC 28273 | 864-398-3096 | myeishacheek05@gmail.com | linkedin.com/in/myeisha-cheek-
 
----
 
 ## PROFESSIONAL SUMMARY
 
 Legal professional with over five years of experience providing litigation support to attorneys in family law, child welfare, juvenile court, and personal injury matters. Skilled in drafting pleadings, motions, correspondence, and legal documents for attorney review and court submission. Experienced in e-filing in South Carolina state and federal courts, managing discovery, coordinating with court personnel, and maintaining organized case files across multiple active matters. Background includes direct support to attorneys in courtroom settings, preparation of documentation for hearings and depositions, and daily communication with clients, opposing counsel, and court staff. Proficient in Litify, Microsoft Office Suite, and document management systems. Currently completing a Master of Legal Studies at Wake Forest University School of Law.
 
----
 
 ## PROFESSIONAL EXPERIENCE
 
@@ -54,7 +52,6 @@ Legal professional with over five years of experience providing litigation suppo
 - Maintained organized case files and tracked deadlines across multiple active matters.
 - Assisted attorneys with preparation of contracts, settlement agreements, and legal correspondence.
 
----
 
 ## EDUCATION
 
@@ -62,7 +59,6 @@ Legal professional with over five years of experience providing litigation suppo
 
 **Bachelor of Arts, Criminology and Criminal Justice** | University of South Carolina | Columbia, SC | December 2018
 
----
 
 ## SKILLS
 
