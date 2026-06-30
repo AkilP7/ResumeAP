@@ -17,7 +17,7 @@ My background includes work as a Litigation Paralegal at the Department of Socia
 
 As a Juvenile Drug Court Program Coordinator with the Fifth Judicial Circuit Solicitor's Office, I worked alongside attorneys and judges in family court proceedings, prepared legal documentation for case review, and served as a direct point of contact for families navigating the court system. I coordinated across legal counsel, social workers, treatment providers, and court personnel on a daily basis — exactly the kind of multi-agency collaboration this role requires.
 
-I currently serve as a Client Intake Coordinator at a family law firm in Charlotte, where I conduct client intake interviews, draft legal correspondence, and maintain case records and deadlines in Litify. I am also completing a Master of Legal Studies at Wake Forest University School of Law. I would welcome the opportunity to bring my legal experience and dedication to your office and support your attorneys in serving the community.
+I currently serve as a Client Intake Coordinator at Cattie and Gonzalez, PLLC in Charlotte, a firm specializing in Medicare Secondary Payer law, where I conduct client intake interviews, draft legal correspondence, and maintain case records and deadlines in Litify. I am also completing a Master of Legal Studies at Wake Forest University School of Law. I would welcome the opportunity to bring my legal experience and dedication to your office and support your attorneys in serving the community.
 
 Thank you for your time and consideration. I look forward to the opportunity to speak with you.
 

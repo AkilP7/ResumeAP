@@ -17,7 +17,7 @@ Over the past five years, I have supported attorneys across litigation and case 
 
 As a Juvenile Drug Court Program Coordinator, I coordinated across attorneys, judges, treatment providers, and families, often serving as the central point of contact who kept all parties aligned and informed. That role demanded the same initiative, organization, and problem-solving skills your firm is looking for.
 
-While my background centers on family law and litigation support, I am confident in my ability to apply my research, drafting, and case management skills to new practice areas including employment law, business litigation, and corporate matters. I am a fast learner and eager to grow alongside your team. I am also completing a Master of Legal Studies at Wake Forest University School of Law.
+While my background centers on family law and litigation support, I am confident in my ability to apply my research, drafting, and case management skills to new practice areas including employment law, business litigation, and corporate matters. I am a fast learner and eager to grow alongside your team. I also currently work as a Client Intake Coordinator at Cattie and Gonzalez, PLLC, a Medicare Secondary Payer law firm in Charlotte, where I manage client communications, case documentation, and records across multiple active matters in Litify. I am also completing a Master of Legal Studies at Wake Forest University School of Law.
 
 I would welcome the opportunity to bring my experience and work ethic to Gardner Skelton. Thank you for your time and consideration.
 
