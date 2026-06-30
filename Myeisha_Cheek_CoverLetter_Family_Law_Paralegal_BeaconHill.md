@@ -11,15 +11,15 @@ Charlotte, NC — South End
 
 Dear Hiring Manager,
 
-I am writing to apply for the Family Law Paralegal position with your Charlotte office. With over five years of experience as a paralegal focused primarily on family law matters, I am confident in my ability to provide immediate, reliable support to your team of attorneys and contribute to your clients' cases from day one.
+I am writing to apply for the Family Law Paralegal position with your Charlotte office. Family law is where I built my paralegal career, and it is the area where I am most confident in my ability to step in, get up to speed immediately, and provide real value to a legal team from day one.
 
-At the Department of Social Services, I worked directly with attorneys on active family law litigation including child welfare cases, termination of parental rights, and custody disputes. I drafted pleadings, motions, discovery requests and responses, financial documents, and correspondence for court submission, managed case files and court calendars across multiple active matters, and prepared complete documentation for hearings and court proceedings. I e-filed documents in South Carolina state and federal courts and communicated regularly with clients, opposing counsel, and court personnel throughout the life of each case.
+At the Department of Social Services, I was embedded in family court litigation every day — drafting pleadings, motions, discovery requests and responses, financial documents, and correspondence for court submission, while managing case files and court calendars across multiple active matters simultaneously. More importantly, I understood the human side of that work. Family law clients are not just files — they are people going through some of the hardest moments of their lives. I served as a direct point of contact for those clients, and I made it a priority to communicate clearly, respond promptly, and make sure they always knew where their case stood. That kind of consistent, compassionate client communication is something I take seriously, and it is exactly what your clients need.
 
-As a Juvenile Drug Court Program Coordinator at the Fifth Judicial Circuit Solicitor's Office, I supported attorneys in family court proceedings and served as a primary point of contact for families going through difficult legal situations. I provided consistent communication and updates to clients throughout their cases, which I understand is a priority in your firm's client-facing environment.
+As a Juvenile Drug Court Program Coordinator at the Fifth Judicial Circuit Solicitor's Office, I supported attorneys in family court proceedings and coordinated across legal counsel, social workers, judges, and families. That experience reinforced something I already believed: that a great paralegal does not just manage paperwork — they help hold the whole process together for everyone involved.
 
-I am currently based in Charlotte and working as a Client Intake Coordinator at Cattie and Gonzalez, PLLC, a firm specializing in Medicare Secondary Payer law, where I manage client communications, draft legal documents, and maintain case records in Litify. I am comfortable adapting to new case management platforms and can get up to speed on MyCase quickly. I am available to start immediately and would welcome the opportunity to support your attorneys during this busy period.
+I am currently based in Charlotte and working as a Client Intake Coordinator at Cattie and Gonzalez, PLLC, a Medicare Secondary Payer law firm, where I manage client communications, draft legal documents, and maintain case records in Litify. I can adapt to MyCase quickly and am available to start immediately. I would welcome the chance to bring my family law experience and client-first approach to your team.
 
-Thank you for your consideration. I look forward to speaking with you soon.
+Thank you for your time. I look forward to the conversation.
 
 Sincerely,
 
