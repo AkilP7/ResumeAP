@@ -19,7 +19,7 @@ As a Juvenile Drug Court Program Coordinator at the Fifth Judicial Circuit Solic
 
 In my current role at Cattie and Gonzalez, PLLC, a Medicare Secondary Payer law firm in Charlotte, I support attorneys across multiple active matters simultaneously. I prepare and proofread legal documents and correspondence, manage incoming client communications, and maintain accurate case records and deadlines in Litify. Working in a law firm environment in Charlotte has sharpened my ability to manage competing priorities professionally and made me even more effective at keeping attorneys supported without requiring constant direction.
 
-I am also completing a Master of Legal Studies at Wake Forest University School of Law. That continued education, combined with my hands-on litigation background, makes me a legal assistant who understands not just the tasks, but the substance behind them. I would welcome the opportunity to bring that to your team.
+I am also completing a Master of Legal Studies at Wake Forest University School of Law. In a litigation support role, that matters because it means I understand what I am drafting and why — not just how to format a motion, but what the legal argument is trying to accomplish. That understanding allows me to catch issues before they reach the attorney, ask better questions, and produce work that requires fewer revisions. It makes me a legal assistant who is a genuine partner in the litigation process, not just an administrator executing tasks. I would welcome the opportunity to bring that to your team.
 
 Thank you for your consideration. I look forward to hearing from you.
 
